@@ -1,1 +1,1 @@
-![](https://tb.helloos.eu.org/img/TBsmall.svg)
+![](https://tb.helloos.eu.org/img/truthboard2.svg)
